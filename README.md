@@ -4,3 +4,5 @@ Imagine finding your perfect NYC apartment not just by location, but by how well
 
 
 Coming soon...
+
+In the mean time, feel free to check out how I initially found the apartments: 
